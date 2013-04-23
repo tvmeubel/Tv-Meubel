@@ -1,0 +1,9 @@
+Tv-Meubel
+=========
+
+Dressoir, tv meubel of tv meubel met design uitstraling bij Zitmaxx Wonen 
+
+Stel, je hebt eindelijk die nieuwe LCD smart tv gekocht waar je al zo lang op aasde. Een super modern toestel inclusief 3D brillen voor dé ultieme tv ervaring. Je beeldkwaliteit is nu dan wel geweldig, tv kijken was niet eerder zo leuk, maar hoe zit het met het tv meubel waar deze hightech tv op staat? Het gaat natuurlijk wel om het totaalplaatje. Want zeg nu zelf, een spiksplinternieuwe tv komt toch totaal niet uit de verf op een oud dressoir of een tv kast die niet past bij het tv scherm en de rest van je interieur. 
+Dus wat doe je, je gaat op zoek naar een tv meubel of dressoir die perfect past bij jouw nieuwe pronkstuk. En waar kun je dat beter dan bij Zitmaxx Wonen in Ter Aar? Nergens toch! Dus stop met het aflopen van al die woonboulevards en woonwinkels en pak het goed aan. Want in deze grote en sfeervolle showroom kun je namelijk terecht voor tv dressoirs en kasten in alle denkbare stijlen en uitvoeringen. En niet alleen vanwege de uitgebreide collectie en keuze is dit the meubelzaak ‘’to be’’, de prijzen zijn er ook nog eens zeer aantrekkelijk! Je krijgt er zelfs laagste prijs garantie. Als dat niet voordelig is! Bij Zitmaxx Wonen kun je dus woonshoppen passend bij jouw budget.
+Wat dacht je van een tv meubel in design uitvoering? Een dergelijk model past natuurlijk perfect bij een super moderne 3D tv. In de showroom in Ter Aar staan zeer veel trendy hoogglans modellen opgesteld, uitgevoerd in extra krasbestendige hoogglans. Combineer dit tv meubel in design look met stoere RVS handgrepen en strakke poten of kies voor een greep loos exemplaar. Plan alvast een filmavondje met je lief of vriendengroep. Kies jouw favoriete kleur en zet die 3D bril maar op! 
+Lees meer : Meubel outlet
